@@ -1,2 +1,2 @@
 # SHEIN
-[![N|Solid](https://prnewswire2-a.akamaihd.net/p/1893751/sp/189375100/thumbnail/entry_id/1_yxv87far/def_height/785/def_width/1500/version/100011/type/2/q/100)](https://cl.shein.com/?ref=www&rep=dir&ret=cl)
+[![N|Solid](https://www.20minutos.es/codigo-descuento/static/shop/29664/logo/872341f3ed9bad0d35cfc303d6c98f1c.jpg?width=200&height=200)](https://cl.shein.com/?ref=www&rep=dir&ret=cl)
