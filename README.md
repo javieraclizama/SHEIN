@@ -10,8 +10,6 @@
   ### ¿Dónde podemos encontrar sus tiendas?
   - SHEIN realiza envíos a más de 220 países y regiones alrededor del mundo. Incluido Chile. 
   - Sus sucursales se encuentran en EEUU, España, Francia, Rusia, Alemania, Italia, Australia y Medio Oriente, por lo que realizan los envíos desde el almacen más cercano al país de donde se hace el pedido. 
-  
+
 # H&M
 [![N|Solid](https://mk0waikikishoppjdmnj.kinstacdn.com/wp-content/uploads/2019/10/HM-min.png](https://www.hm.com/cl/)
-**H&M** es una multinacional sueca de ropa al por menor, conocida por su rápido manejo de logística de **ropa de moda para mujeres**, hombres, adolescentes y niños. Impulsada por su deseo de _hacer grandes diseños al alcance de todos de forma sostenible_. Juntos, ofrecen moda, diseño y servicios que permitan a las personas inspirarse y expresar su propio estilo personal.
-Su oferta está dirigida a los fanáticos de la moda en todo el mundo. Se está expandiendo con un enfoque en la calidad y sostenibilidad en los mercados existentes, así como en nuevos países. H&M Group incluye las marcas H&M y H&M HOME, COS, & Other Stories, Monki, Weekday, ARKET y Afound. Se espera que con los cambios generados debido al Covid-19 se acelere la digitalización en el comercio de H&M, mediante la integración de las tiendas en línea. Para todo el año 2020 está previsto que un total de 170 tiendas cierren de forma permanente y que Australia se convierta en un nuevo mercado online de H&M a finales del 2020. También se lanzará en la plataforma de comercio electrónico SSG.COM en Corea del Sur.
