@@ -12,6 +12,6 @@
   - Sus sucursales se encuentran en EEUU, España, Francia, Rusia, Alemania, Italia, Australia y Medio Oriente, por lo que realizan los envíos desde el almacen más cercano al país de donde se hace el pedido. 
 
 # H&M
-[![Build Status](https://mk0waikikishoppjdmnj.kinstacdn.com/wp-content/uploads/2019/10/HM-min.png](https://www.hm.com/cl)
+[![Build Status](https://www.mallsyoutletsvivo.cl/vivo-coquimbo/wp-content/uploads/sites/2/2018/06/hm.jpg](https://www.hm.com/cl/)
 
 
