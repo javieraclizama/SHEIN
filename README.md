@@ -5,7 +5,7 @@
 ## SHEIN ofrece
   - Las últimas tendencias para mujeres y jóveces a precios muy accesibles.
   - Lleva los últimos estilos de la moda global al mercado.
-  - Estilos bohemios, camisetas gráficas, blusas estampaas y trajes de baño CHIC.
+  - Estilos bohemios, camisetas gráficas, blusas estampadas y trajes de baño CHIC.
   
   ### ¿Dónde podemos encontrar sus tiendas?
   - SHEIN realiza envíos a más de 220 países y regiones alrededor del mundo. Incluido Chile. 
