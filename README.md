@@ -7,7 +7,7 @@ Shein ofrece las últimas tendencias para mujeres y jóvenes a precios muy acces
 # H&M
 [![N|Solid](https://upload.wikimedia.org/wikipedia/commons/thumb/5/53/H%26M-Logo.svg/245px-H%26M-Logo.svg.png)](https://www2.hm.com/es_es/index.html)
 **H&M** es una multinacional sueca de ropa al por menor, conocida por su rápido manejo de logística de **ropa de moda para mujeres**, hombres, adolescentes y niños. Impulsada por su deseo de _hacer grandes diseños al alcance de todos de forma sostenible_. Juntos, ofrecen moda, diseño y servicios que permitan a las personas inspirarse y expresar su propio estilo personal.
-## H&M ofrece
+
 Su oferta está dirigida a los fanáticos de la moda en todo el mundo. Se está expandiendo con un enfoque en la calidad y sostenibilidad en los mercados existentes, así como en nuevos países. H&M Group incluye las marcas H&M y H&M HOME, COS, & Other Stories, Monki, Weekday, ARKET y Afound. Se espera que con los cambios generados debido al Covid-19 se acelere la digitalización en el comercio de H&M, mediante la integración de las tiendas en línea. Para todo el año 2020 está previsto que un total de 170 tiendas cierren de forma permanente y que Australia se convierta en un nuevo **mercado online** de H&M a finales del 2020. También se lanzará en la plataforma de comercio electrónico SSG.COM en Corea del Sur.
 
 # Objetivo y alcances
